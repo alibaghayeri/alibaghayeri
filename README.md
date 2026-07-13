@@ -43,7 +43,3 @@ AI Model Deployment and Production Machine Learning
 
 📫 Connect with Me
 Email: ali.baghayeri74@gmail.com
-
-Telegram: @Alibaghayeri74
-
-LinkedIn: linkedin.com/in/ali-baghayeri-a43aa916a 
