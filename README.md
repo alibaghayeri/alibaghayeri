@@ -46,4 +46,4 @@ Email: ali.baghayeri74@gmail.com
 
 Telegram: @Alibaghayeri74
 
-LinkedIn linkedin.com/in/ali-baghayeri-a43aa916a 
+LinkedIn: linkedin.com/in/ali-baghayeri-a43aa916a 
